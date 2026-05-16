@@ -1,4 +1,4 @@
-# 
+# elite Atom for PC | Atom for Windows Script | file-explorer + workspace-management is the best Atom for PC | Atom for Windows script, featuring file-explorer and
 
 
 
